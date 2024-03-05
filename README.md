@@ -1,0 +1,2 @@
+# KANJI
+KANJI
